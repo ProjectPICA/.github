@@ -6,4 +6,4 @@ Via ons platform vraag je eenvoudig een grondig eigendomsrapport aan voor een Be
 
 ---
 
-*Pica is een product van [Clercq.It](https://clercq.it) en is momenteel actief in Vlaanderen.*
+*Pica is een product van Project Pica bv. en is momenteel actief in Vlaanderen.*
